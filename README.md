@@ -1,0 +1,1 @@
+Notizen für den internen Gebrauch des Jiu-Jitsu-Trainings. Wir erheben keinerlei Anspruch auf Vollständigkeit, vollständige Richtigkeit. Diese Notizen sind eher als Orientierung und Gedächtnisstütze für das Training gedacht.
